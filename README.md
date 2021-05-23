@@ -1,1 +1,1 @@
-**Animated outfit images version 12.64**
+**Animated outfit images version 12.66**
